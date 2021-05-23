@@ -1,7 +1,7 @@
 # Common Brain Traps
 ````
 author(s): Joel Biel & Faith G. Harper
-appears in: How To Be Accountable Workbook | Microcosm publishing - 2019
+appears in: How To Be Accountable Workbook (info-graphic pages 10-11) | Microcosm publishing - 2019
 ````
 transcribed by: [AL0YSI0US](https://github.com/AL0YSI0US)
 
