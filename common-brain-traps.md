@@ -60,6 +60,6 @@ transcribed by: [AL0YSI0US](https://github.com/AL0YSI0US)
 - [ ] You believe that the same rules always create the same outcomes no other factors should ever influence any experience.
 
 
-Pick up a copy here 👉🏾 [How To Be Accountable Workbook](https://microcosmpublishing.com/catalog/zines/14443) - 💲5.95
+Pick up a copy of the 56 page zine here 👉🏾 [How To Be Accountable Workbook](https://microcosmpublishing.com/catalog/zines/14443) - 💲5.95
 
   
