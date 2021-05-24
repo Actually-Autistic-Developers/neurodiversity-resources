@@ -59,6 +59,6 @@ transcribed by: [AL0YSI0US](https://github.com/AL0YSI0US)
 `Should Statements` 
 - [ ] You believe that the same rules always create the same outcomes no other factors should ever influence any experience.
 
-[How To Be Accountable Workbook](https://microcosmpublishing.com/catalog/zines/14443)
++ Pick up a copy here 👉🏾 [How To Be Accountable Workbook](https://microcosmpublishing.com/catalog/zines/14443) - 💲5.95
 
   
