@@ -45,7 +45,7 @@ So, as a public service, I’m posting this list of a few key neurodiversity-rel
 
 > What It Means:
 >
-> The neurodiversity paradigm is a specific perspective on neurodiversity – a perspective or approach that boils down to three fundamental principles:
+> The [neurodiversity paradigm](http://neurocosmopolitanism.com/throw-away-the-masters-tools-liberating-ourselves-from-the-pathology-paradigm/) is a specific perspective on neurodiversity – a perspective or approach that boils down to three fundamental principles:
 
 1.) Neurodiversity is a natural and valuable form of human diversity.
 
