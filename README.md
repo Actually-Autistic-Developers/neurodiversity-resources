@@ -23,14 +23,32 @@ Our culture is not the best with communication, some of the truths about our bra
 > You are loved. ❤️
 
 ## ALOYSIOUS : UNMASKED
-My Autism Spectrum
+
+<table align="center"><tr><td>
+<pre>
+                  okay butLike whoAmI?          [i'll be vague:]
+===============================================================
+[x] Parent                                          [x] Mentor 
+💻 Software Developer                     [x] Permissionary
+🎖️ Army Veteran [13+ years]              [x] Humanistic
+[x] Life-long practitioner of the         ♿ Autistic
+    mixed martial and aerial arts.        🌈 Queer 
+[x] Community Volunteer         ✊🏾 Black = Humxn
+    - The Mission Continues  
+    - Team Rubicon           
+    - Team RWB            🎼   🕺    🗣️   🎤    🛹   ⚒️💎⛏️
+    - YouthCare           dj dancer poet singer sk8r Rock-hound
+</pre> 
+</td></tr></table>
+
+**My Autism Spectrum**
 ```
 Neurological
 ```
 + Sensory processing disorder
 + ADHD (Attention Deficit Hyperactivity Disorder)
-+ Synesthesia Simply put, when one sense is activated, another unrelated sense is activated at the same time. (Billie Eillish experiences this!)
-+ Echolalia (I repeat the words, movements and actions of others when the appears soothing to me, it is almost reflexive)
++ Synesthesia (Simply put, when one sense is activated, another unrelated sense is activated at the same time, sometimes many all at once. Fun Fact: Billie Eillish experiences this!
++ Echolalia (I repeat the words, movements and actions of others when they appears soothing to me, it is almost reflexive)
 ```
 Psychological
 ```
@@ -45,14 +63,13 @@ Learning Differences
 ```
 + Dyslexia (difficulty in learning to read or interpret words, letters, and other symbols)
 + Dyscalculia (math problems) - as an adult
-+ Hypercalculia (math savant) - as a child pre abuse and neglect / when the abuse started I somehow could no longer perform, I wonder why 🤦🏾‍♂️
 + Hyperlexia (reading savant) - I still read to a wicked degree, but the letters still hop around on the page 
 ```
 Physiological (“co-occuring conditions”) 
 ```
-+ Hyperacusis (Sensitive Hearing)
++ Hyperacusis (Sensitive Hearing) - 🎧 I wear Headphones Everywhere, Spotify is everything.
 + Dyspraxia (coordination problems) - I OUTGREW this ya'll I obsessed over balance since a child, I walk tight ropes now. 
-+ Vision Problems
++ Vision Problems (various, lightly explored...finally have 👓)
 ```
 Genetics 
 ```
@@ -71,8 +88,10 @@ Genetics
   + The Neuro Emergent Author of [Time: making time make sense for ADHD and Autistic people](https://martarose-neurodivergentcreators-com.ck.page/9d449add24) - free zine emailed to your inbox....It's worth it, she won't spam you.
 
 ## Facebook support groups
+> These places can be brutal if you come in with the wrong terminology, you think you would be gently corrected but that not always the case...avoid using the following terminology:
+> [Aspergers](https://www.fatherly.com/health-science/aspergers-vs-autism-and-hans-asperger/) · [High Functioning](https://www.autismawareness.com.au/news-events/aupdate/why-we-should-stop-using-the-term-high-functioning-autism/) · [Have you ever heard of Temple Grandin?](https://autish.wordpress.com/2019/01/08/the-problem-with-temple-grandin/) · [is Autistic / NOT has Autism](https://autisticadvocacy.org/about-asan/identity-first-language/) identity first language More to follow when I rememer them.
+
 + [Autism & Family Support](https://www.facebook.com/groups/169585403052045) `Private group · 22.8K members` - Run by a buddy...Great Group!
-+ [Autism inclusivity](https://www.facebook.com/groups/autisminclusivity) `Private group · 59.2K members`
 + [ADHD Men's Support Group](https://www.facebook.com/groups/409354609832404/) `Private group · 3.8K members`
 + [Autistic Adults with ADHD](https://www.facebook.com/groups/585893842348533) `Private group · 4.4K members`
 + [Why did I walk into this room? A progressive ADHD/Autistic support group](https://www.facebook.com/groups/2037229473249500/) `Private group · 8.6K members`
