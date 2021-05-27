@@ -10,7 +10,7 @@ Our culture is not the best with communication, some of the truths about our bra
   + This repo is in an effort to spare spoons and streamline the learning process. 
   + There is a lot of SHITE on the internet about our "disorders" and undesirable behaviors, I won't be posting any of that energy here. 
  
-> The idea here is that if you read a document within this repository and a good deal of it resonates...you may me on the Spectrum of Neurodiversity. 
+> The idea here is that if you read a document within this repository and a good deal of it resonates...you may me on the Spectrum of Neurodivergence. 
 > 
 > Tune in and find out where!
 >
