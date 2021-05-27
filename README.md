@@ -62,7 +62,7 @@ Psychological
 Learning Differences
 ```
 + Dyslexia (difficulty in learning to read or interpret words, letters, and other symbols)
-+ Dyscalculia (math problems) - as an adult
++ Dyscalculia (math problems)
 + Hyperlexia (reading savant) - I still read to a wicked degree, but the letters still hop around on the page 
 ```
 Physiological (“co-occuring conditions”) 
