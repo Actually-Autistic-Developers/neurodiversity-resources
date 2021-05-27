@@ -91,7 +91,7 @@ Genetics
 
 ## Facebook support groups
 > These places can be brutal if you come in with the wrong terminology, you think you would be gently corrected but that not always the case...avoid using the following terminology:
-> [Aspergers](https://www.fatherly.com/health-science/aspergers-vs-autism-and-hans-asperger/) · [High Functioning](https://www.autismawareness.com.au/news-events/aupdate/why-we-should-stop-using-the-term-high-functioning-autism/) · [Have you ever heard of Temple Grandin?](https://autish.wordpress.com/2019/01/08/the-problem-with-temple-grandin/) · [is Autistic / NOT has Autism](https://autisticadvocacy.org/about-asan/identity-first-language/) identity first language More to follow when I rememer them.
+> [Aspergers](https://www.fatherly.com/health-science/aspergers-vs-autism-and-hans-asperger/) · [High Functioning](https://www.autismawareness.com.au/news-events/aupdate/why-we-should-stop-using-the-term-high-functioning-autism/) · [Have you ever heard of Temple Grandin?](https://autish.wordpress.com/2019/01/08/the-problem-with-temple-grandin/) · [is Autistic / NOT has Autism](https://autisticadvocacy.org/about-asan/identity-first-language/) identity first language ( More to follow when I rememer things )
 
 + [Autism & Family Support](https://www.facebook.com/groups/169585403052045) `Private group · 22.8K members` - Run by a buddy...Great Group!
 + [ADHD Men's Support Group](https://www.facebook.com/groups/409354609832404/) `Private group · 3.8K members`
