@@ -78,6 +78,8 @@ Genetics
 
 
 ## People I follow: 
++ `ADHD Couple` is creating comics and illustrated resources about ADHD :  https://linktr.ee/adhd_couple
++ 
 + `Dr. Nick Walker` A queer autistic scholar and educator, and an author of speculative fiction and nonfiction. https://neurocosmopolitanism.com/
 
 + `TraumaGeek` Neuroscience education and support for parents and helping professionals. https://www.facebook.com/TraumaGeek / https://www.instagram.com/autietraumageek/
