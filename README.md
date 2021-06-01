@@ -101,7 +101,9 @@ Genetics
 + [Autistic Women/Non-Binary Support Group | LGBTQIA+](https://www.facebook.com/groups/2511027439174891/) `Private group  · 3.7K members`
 + [Autistic Women Support Group | LGBTQ+ Inclusive | Safe Place](https://www.facebook.com/groups/1944262575825340/) `Private group  · 8.9K members`
 + [Neurotypical Partners of Autistic People](https://www.facebook.com/groups/418852204877622) `Private group · 1.1K members`
+
 🤡
+
 + [It's 2021 and autism is still being pathologized](https://www.facebook.com/groups/autismisnotadisease/) `Private group  · 448 members`
 + [I’m high and this is Autism](https://www.facebook.com/groups/1004076026733577/) `Private group  · 1.7K members`
 + [NOT AS BRAVE AS AUTISM WARRIOR MOOOOMS](https://www.facebook.com/groups/368619990352952/) `Private group  · 8.5K members`
