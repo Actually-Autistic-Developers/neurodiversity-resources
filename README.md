@@ -58,6 +58,7 @@ Psychological
 + C-PTSD (Complex Post Traumatic Stress Syndrome) it's the upgrade from the basic edition
 + OCD (Obsessive Compulsive Disorder) 
 + PDA (Pathological extreme demand avoidance)
++ Bipolar
 ```
 Learning Differences
 ```
