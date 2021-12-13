@@ -19,7 +19,8 @@ The idea is if you read this document and a good deal of it resonates...you may 
 
 
 ### My ADHD and my relationship with food: 
-![](https://scontent-sea1-1.xx.fbcdn.net/v/t1.6435-9/p843x403/127630003_173506401121194_4346040068243724709_n.jpg?_nc_cat=104&ccb=1-3&_nc_sid=84a396&_nc_ohc=jozqvQriF8YAX__Efki&_nc_ht=scontent-sea1-1.xx&tp=6&oh=9edcedade30d200c9df57d75c498befe&oe=60D30CC9)
+
+![](https://scontent-sea1-1.xx.fbcdn.net/v/t39.30808-6/266491755_5034872099859171_1123158031741732109_n.jpg?_nc_cat=105&cb=c578a115-c1c39920&_nc_rgb565=1&ccb=1-5&_nc_sid=730e14&_nc_ohc=_IK4DS6pX1gAX97togk&_nc_ht=scontent-sea1-1.xx&oh=549092a39f3b30054b523fe13fee279e&oe=61BB4971)
 
 > meme created by @jennhasadhd ( aka Jenn has adhd - New Zealand )
 
