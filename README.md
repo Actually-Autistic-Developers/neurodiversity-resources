@@ -29,8 +29,8 @@ Our culture is not the best with communication, some of the truths about our bra
                   okay butLike whoAmI?          [i'll be vague:]
 ===============================================================
 [x] Parent                                          [x] Mentor 
-💻 Software Developer                     [x] Permissionary
-🎖️ Army Veteran [13+ years]              [x] Humanistic
+💻 Software Developer                       [x] Permissionary
+🎖️ Anti-War Veteran [13+ years]              [x] Humanistic
 [x] Life-long practitioner of the         ♿ Autistic
     mixed martial and aerial arts.        🌈 Queer 
 [x] Community Volunteer         ✊🏾 Black = Humxn
