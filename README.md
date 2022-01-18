@@ -85,6 +85,8 @@ Genetics
 
 + `TraumaGeek` Neuroscience education and support for parents and helping professionals. https://www.facebook.com/TraumaGeek / https://www.instagram.com/autietraumageek/
 
++ `Angry, Asian, and Autistic` Sora 空. Nisei Japanese American. Actually Autistic. Partially verbal. Physically Disabled. Ambulatory Wheelchair User. Advocate. Bisexual. Non-binary. https://linktr.ee/angryasianandautistic
+
 + `Neurodivergent Rebel` https://www.facebook.com/NeurodivergentRebel / https://www.instagram.com/neurodivergentrebel/
 
 + `neuroemergent_insurgent` https://www.instagram.com/neuroemergent_insurgent/
